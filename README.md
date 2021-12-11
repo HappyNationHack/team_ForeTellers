@@ -1,0 +1,1 @@
+ForeTeller is a App for made all people happy 
